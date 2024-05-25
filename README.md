@@ -7,5 +7,7 @@ Read me!
   spacealienrat (Sir percival/ marla) honeyboo <3)
   〈SIЯX〉(Hex/cellcon) 
   My online siblings
+  chaosonic (donic)
+  soulishot_(Xio)
   and more friends :)
   (Be closer with me then I might put ur name in here :D) 
