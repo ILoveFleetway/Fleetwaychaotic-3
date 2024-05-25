@@ -6,8 +6,12 @@ Read me!
   knightoftherxundtable (viper/lance)
   spacealienrat (Sir percival/ marla) honeyboo <3)
   〈SIЯX〉(Hex/cellcon) 
-  My online siblings
+  My online siblings (Boba/may, cookie, OTCS, yoyo, Xeno/frye, Crownboo)
   chaosonic (donic)
   soulishot_(Xio)
-  and more friends :)
+  and more friends (irl too) :)
   (Be closer with me then I might put ur name in here :D) 
+
+  I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.
+  2. DO not bring anyone death retaled otherwise dni.
+  
