@@ -14,4 +14,5 @@ Read me!
 
   I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.
   2. DO not bring anyone death retaled otherwise dni.
+  3. being called as a dog. it was funny at first but now it's just getting annoying
   
