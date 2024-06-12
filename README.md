@@ -4,7 +4,6 @@ Read me!
  I will fix things in here later cuz I am lazy rn 
  My pookies!
   knightoftherxundtable (viper/lance)
-  spacealienrat (Sir percival/ marla) honeyboo <3)
   〈SIЯX〉(Hex/cellcon) 
   My online siblings (Boba/may, cookie, OTCS, yoyo, Xeno/frye, Crownboo)
   chaosonic (donic)
