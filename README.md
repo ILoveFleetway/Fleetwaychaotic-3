@@ -7,7 +7,8 @@ Read me!
   〈SIЯX〉(Hex/cellcon) 
   My online siblings (Boba/may, cookie, OTCS, yoyo, Xeno/frye, Crownboo)
   chaosonic (donic)
-  soulishot_(Xio)
+  soulishot_(Xio) 
+  Sonic.dazedpulse (sirsonic)
   and more friends (irl too) :)
   (Be closer with me then I might put ur name in here :D) 
 
