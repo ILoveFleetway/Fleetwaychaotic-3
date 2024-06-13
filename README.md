@@ -9,6 +9,7 @@ Read me!
   chaosonic (donic)
   soulishot_(Xio) 
   Sonic.dazedpulse (sirsonic)
+  My hh friends
   and more friends (irl too) :)
   (Be closer with me then I might put ur name in here :D) 
 
