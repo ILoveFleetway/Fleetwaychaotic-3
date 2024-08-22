@@ -10,7 +10,11 @@ Read me!
   soulishot_(Xio) 
   Sonic.dazedpulse (sirsonic)
   My hh friends
-  Haru, lili, ect
+  Haru
+  lili
+  ivy
+  Metal sonic
+  etc ppl :)
   and more friends (irl too) :)
   (Be closer with me then I might put ur name in here :D) 
 
