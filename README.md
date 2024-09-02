@@ -6,6 +6,8 @@ Read me!
  MAYMAY 
   knightoftherxundtable (viper/lance)
   MAYMAY<3(again(
+ Dane and yoyo
+ Mea (online daughter
   Haru
   lili
   etc ppl :)
