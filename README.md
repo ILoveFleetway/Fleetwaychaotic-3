@@ -2,14 +2,22 @@
 Read me!
 ℭ𝔞𝔩𝔩 𝔪𝔢 𝔉𝔩𝔢𝔢𝔱𝔴𝔞𝔶 𝔰𝔲𝔭𝔢𝔯 𝔰𝔬𝔫𝔦𝔠 𝔬𝔯 𝔣𝔩𝔢𝔢𝔱 𝔣𝔬𝔯 𝔰𝔥𝔬𝔯𝔱
  I will fix things in here later cuz I am lazy rn 
+ 
+(🎀->online sibling)
+(✨Bff)
+(💛friends/close friends)
+
  My online people favs
- MAYMAY 
-  knightoftherxundtable (viper/lance)
-  MAYMAY<3(again(
- Dane and yoyo
- Mea (online daughter
-  Haru
-  lili
+ MAYMAY 🎀
+  knightoftherxundtable (viper/lance)✨💛⚔️🦔
+  chaosonic (donic)💙💛🦔
+  Tikal💛🧡🌺
+  MAYMAY<3(again(🎀
+ Dane and yoyo🎀
+ Mea (online daughter!🎀
+
+  Haru💛
+  lili💛
   etc ppl :)
   and more friends (irl too) :)
   (Be closer with me then I might put ur name in here :D) 
