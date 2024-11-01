@@ -12,7 +12,7 @@ Read me!
   knightoftherxundtable (viper/lance)✨💛⚔️🦔
   chaosonic (donic)💙💛🦔
   Tikal💛🧡🌺
-  MAYMAY<3(again(🎀
+  METAL (MetallicDemise) aka MY ONLINE DAD(🎀
  Dane and yoyo🎀
  Mea (online daughter!🎀
 Crownboo!! :) 🎀
