@@ -13,7 +13,7 @@ Read me!
   chaosonic (donic)💙💛🦔
   Tikal💛🧡🌺
   METAL (MetallicDemise) aka MY ONLINE DAD(🎀
- Dane and yoyo🎀
+ Dane 🎀
  Mea (online daughter!🎀
  XENO/XEN/FRYE 🎀💛....
 Crownboo!! :) 🎀
