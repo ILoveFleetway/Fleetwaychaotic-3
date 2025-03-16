@@ -8,7 +8,6 @@ Read me!
 (💛friends/close friends)
 
  My online people favs
- MAYMAY 🎀
   knightoftherxundtable (viper/lance)✨💛⚔️🦔
   chaosonic (donic)💙💛🦔
   Tikal💛🧡🌺
@@ -17,10 +16,7 @@ Read me!
  Mea (online daughter!🎀
  XENO/XEN/FRYE 🎀💛....
 Crownboo!! :) 🎀
-  Haru💛
-  lili💛
-  etc ppl :)
-  and more friends (irl too) :)
+Sunrives my second online daughter! 🎀
   (Be closer with me then I might put ur name in here :D) 
 
   I love my mother (irl) sm! Shes the best mother and if u disrespect then dni.
